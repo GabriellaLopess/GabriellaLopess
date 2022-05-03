@@ -4,7 +4,7 @@
 
 
 - ☕  Desenvolvedora Java Júnior.
-- 🔮  Atualmente estudando HTML/CSS/Angular.
+- 🔮  Atualmente estudando Python.
 - 👩🏻‍💻 Ela/ Dela 
 - 📫 Entre em contato comigo: Gabriellalopes0630@gmail.com
 - 🪐 .- .--. .- .. -..- --- -. .- -.. .- / .--. --- .-. / - . -.-. -. --- .-.. --- --. .. .- / . / .--- --- --. --- ... .-.-.-
