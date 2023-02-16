@@ -3,8 +3,7 @@
 ### Olá! Eu sou a Gabriella, aceita um café? ☁️
 
 
-- ☕  Desenvolvedora Java Júnior.
-- 🔮  Atualmente estudando Python.
+- ☕  Sistemas para internet- FIAP.
 - 👩🏻‍💻 Ela/ Dela 
 - 📫 Entre em contato comigo: Gabriellalopes0630@gmail.com
 - 🪐 .- .--. .- .. -..- --- -. .- -.. .- / .--. --- .-. / - . -.-. -. --- .-.. --- --. .. .- / . / .--- --- --. --- ... .-.-.-
