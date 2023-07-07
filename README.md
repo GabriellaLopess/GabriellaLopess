@@ -2,7 +2,7 @@
 
 ### Olá! Eu sou a Gabriella, aceita um café? ☁️
 
-
+- Atualmente estudando Alteryx
 - ☕  Sistemas para internet- FIAP.
 - 👩🏻‍💻 Ela/ Dela 
 - 📫 Entre em contato comigo: Gabriellalopes0630@gmail.com
